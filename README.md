@@ -1,5 +1,5 @@
-# zuchhini chutney
+# zuchhini zwiebel chutney
 
-## ingredients
+## zutaten
 
 * 1100 g zucchini
